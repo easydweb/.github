@@ -1,1 +1,1 @@
-# Let's make it easier together
+# Simplify Web3!
